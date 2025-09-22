@@ -1,4 +1,5 @@
 Dengan hormat,
+
 Z
 
 Saya ingin menyampaikan permohonan terkait file foto yang sebelumnya telah Anda bagikan kepada saya melalui pesan singkat. Namun, foto tersebut dibagikan menggunakan fitur sekali lihat, sehingga saya tidak dapat menyimpannya untuk kebutuhan dokumentasi maupun referensi lebih lanjut. Oleh karena itu, dengan penuh hormat saya memohon agar foto tersebut dapat dikirimkan kembali dalam format yang dapat diakses secara berulang.
@@ -12,4 +13,5 @@ Dengan demikian, saya berharap Anda berkenan untuk mempertimbangkan permohonan i
 Demikian permohonan ini saya sampaikan dengan penuh rasa hormat. Atas perhatian, pengertian, dan kerja sama yang baik, saya ucapkan terima kasih.
 
 Hormat saya,
+
 V
